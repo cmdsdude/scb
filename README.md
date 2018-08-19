@@ -1,2 +1,2 @@
 # Simply the Best
-A Systematic Cookbook
+A Systemic Cookbook
