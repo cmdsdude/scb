@@ -15,13 +15,16 @@ My aim is nothing more than collecting these phenomenons, describing them as I o
 
 Feel free to attend my walk through the systematic world of cooking which could get You rid of the chains, strict recipes and convenience products lay around Your hands as well as around Your mind and prevent Yourself by expressing You personally - in cooking as in all other aspects You look at the world.
 
-This is nothing against "The Industry". I like industrial processing, I am involved in several ways and I benefit from standardized and normalized products and the markets they are offered. My intend is to show, how availability of these products can boost You into another dimension of greatness. Take what You can get to climb on shoulders of those, You invested lots of effort in developing, testing and assuring of stable qualities. This is what You need to free Your mind from doubts about the material You use. Once, You entered the basic levels of mastership, You can vary. You can grow Your own vegetables and herbs. And maybe then, You can appreciate greatness resulting from stable flavor and qualities, industrial products offer.
+This is nothing against "The Industry". I like industrial processing, I am involved in several ways and I benefit from standardized and normalized products. I benefit als well as profit on the markets these products are offered.  
+My intend is to show, how availability of these products can boost You into another dimension of greatness. Take what You can get hold of to climb on shoulders of those, who invested lots of effort in developing, testing and assuring stable qualities.
 
-It's about coexistence instead of fascism I refuse - in kitchen as well as everywhere else.
+This is what You need to free Your mind from doubts about the material You use. Once, You entered the basic levels of mastership, You can vary. You can grow Your own vegetables and herbs. And maybe then, You can appreciate greatness resulting from stable qualities in flovaour and other properties, industrial products offer.
+
+It's about coexistence instead of fascism which I refuse - in kitchen as well as everywhere else.
 
 In German we say
 
-> Liebe geht durch den Magen.
+> Liebe geht durch den Magen.  
 > (Love runs through stomach)
 
 Enjoy, and delight Your beloved by Yourself and what You can share with them.
